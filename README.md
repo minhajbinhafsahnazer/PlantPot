@@ -28,7 +28,7 @@
 - **How it works**:  
   - Partner with brands using recycled/sustainable materials.  
   - Highlight a **“Green Collection”** with certifications and artisan stories.  
-- **Quote**: _"Decorate Your Home, Save the Planet."_
+- **Quote**: _"The complete Home decor & Landscape application, Decorate ypur home, Save the Planet."_
 
 ---
 
